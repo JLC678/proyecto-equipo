@@ -1,3 +1,3 @@
 Juan Lucas Cortés
 Juan Pablo Perez
-// Dato curioso . Barcelona el mejor 
+//Dato Curioso: El barcelona es el mejor equipo de europa
