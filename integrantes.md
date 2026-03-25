@@ -1,1 +1,3 @@
-Juan Lucas Cortés, Maria Alejandra Ortega, Juan Pablo, Jugar Play
+Juan Lucas Cortés
+Juan Pablo Perez
+// Dato curioso . Barcelona el mejor 
