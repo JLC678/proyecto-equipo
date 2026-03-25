@@ -1,1 +1,1 @@
-Juan Lucas Cortés, Maria Alejandra Ortega, Jugar Play
+Juan Lucas Cortés, Maria Alejandra Ortega, Juan Pablo, Jugar Play
