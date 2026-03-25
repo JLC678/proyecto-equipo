@@ -1,1 +1,3 @@
-Juan Lucas Cortés, Maria Alejandra Ortega, Juan Pablo, Jugar Play
+Juan Lucas Cortés
+Juan Pablo Perez
+Dato Curioso: El barcelona es el mejor equipo de europa
